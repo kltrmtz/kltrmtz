@@ -16,15 +16,18 @@
 
   Languages and Tools:
   
-![image](https://github.com/user-attachments/assets/a81445e1-ee22-42ca-96b8-804729cc44db)
+![image](https://github.com/user-attachments/assets/a81445e1-ee22-42ca-96b8-804729cc44db) ![image](https://github.com/user-attachments/assets/172fa183-613b-4a78-a618-f7cffd9e9aea)
 
-![image](https://github.com/user-attachments/assets/172fa183-613b-4a78-a618-f7cffd9e9aea)
+
 
 ![image](https://github.com/user-attachments/assets/14aa47e4-bd89-4ac1-9d4a-79a6c5c47764)
 
 ![image](https://github.com/user-attachments/assets/7237aacf-774c-463f-818d-e65fb4d3d12b)
 
 ![image](https://github.com/user-attachments/assets/9bf5c701-ad9e-45f9-8277-6f9a042d640c)
+
+![image](https://github.com/user-attachments/assets/d6bb214f-d295-406d-beb5-c3bfd8d79de9)
+
 
 ![image](https://github.com/user-attachments/assets/d4e26bc1-3309-4b33-b1b0-dcf8b0dfc29d)
 
