@@ -6,23 +6,38 @@
 - 📫 How to reach me: social networking, email. 
 - ⚡ Fun fact: ...
 
+
   Connect with me:
-  
-  ![image](https://github.com/user-attachments/assets/4ba5449c-24d7-48fc-9a13-77e79f824324)
-  
-  ![image](https://github.com/user-attachments/assets/acf7a4f8-c3c3-4b83-8eb8-a3737c5f4163)
+
+  ![image](https://github.com/user-attachments/assets/3e3bd3b3-7ad5-4043-810b-f6f2f141201f)
+
+  ![image](https://github.com/user-attachments/assets/482b49bb-1003-4f1d-9130-c90e8d806aed)
+
 
   Languages and Tools:
   
-  ![image](https://github.com/user-attachments/assets/15a4092c-a83e-473b-8e57-dde0e2c7ed57)
-  
-  ![image](https://github.com/user-attachments/assets/4005dc03-b665-43f3-83e0-2c8e45e0364a)
-  
-  ![image](https://github.com/user-attachments/assets/840461fc-91bf-414a-aaaa-16f0bf08daac)
-  
-  ![image](https://github.com/user-attachments/assets/99298b53-a493-4853-b005-13b567b8ad8d)
-  
-  ![image](https://github.com/user-attachments/assets/f09a6f5b-4623-4e5c-9fa8-28614bef7a49)
+![image](https://github.com/user-attachments/assets/a81445e1-ee22-42ca-96b8-804729cc44db)
+
+![image](https://github.com/user-attachments/assets/172fa183-613b-4a78-a618-f7cffd9e9aea)
+
+![image](https://github.com/user-attachments/assets/14aa47e4-bd89-4ac1-9d4a-79a6c5c47764)
+
+![image](https://github.com/user-attachments/assets/7237aacf-774c-463f-818d-e65fb4d3d12b)
+
+![image](https://github.com/user-attachments/assets/9bf5c701-ad9e-45f9-8277-6f9a042d640c)
+
+![image](https://github.com/user-attachments/assets/d4e26bc1-3309-4b33-b1b0-dcf8b0dfc29d)
+
+![image](https://github.com/user-attachments/assets/5f3755ef-0b34-4118-a5b9-a59d23be0ea2)
+
+![image](https://github.com/user-attachments/assets/b1dc54da-2dea-4f3d-a7f1-fcaf1f3fa24f)
+
+
+
+
+
+
+
 
 
 
